@@ -11,4 +11,3 @@ The person below is **王警官** , my bro. He's a good guy , hope you like him.
 Im studying mis in Ncu now. And the most important thing is that
 我的期末準備要坐牢坐到暑假了 rrrrrrrrr
 <br>
-![sleep](https://user-images.githubusercontent.com/83540570/172087355-4970f97a-0a40-44fc-b860-cb8df663d062.jpg)
